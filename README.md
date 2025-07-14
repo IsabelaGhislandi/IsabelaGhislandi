@@ -2,5 +2,6 @@
 
 **Full Stack Developer nad visual artist**
 
-![giphy](https://github.com/user-attachments/assets/a0628663-8718-47c2-9fee-ce1337006d79)
+![keyboard-computer](https://github.com/user-attachments/assets/0b6de870-a0f2-4462-add0-52a996bad6b5)
+
 
